@@ -4,4 +4,4 @@ I’m interested in AI. Aspecially using AI for teaching children with special n
 
 
 My LinkedIn:
-linkedin.com/in/khrystyna-pankiv-a87522183
+[linkedin.com/in/khrystyna-pankiv-a87522183](https://www.linkedin.com/in/khrystyna-pankiv-a87522183/)
