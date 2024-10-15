@@ -1,6 +1,6 @@
 My name is Khrystyna Pankiv
-I'm working as an Associate Professor in Ivano-Frankivsk National Technical University of Oil and Gas.
-I’m interested in AI. Aspecially using AI for teaching children with special needs (autism).
+I'm working as an Associate Professor at Ivano-Frankivsk National Technical University of Oil and Gas.
+I’m passionate about mathematical modelling and AI. Especially using AI to teach children with special needs.
 
 
 My LinkedIn:
